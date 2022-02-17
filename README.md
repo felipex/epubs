@@ -8,3 +8,8 @@ Augusto do Anjos
 
 http://repositorio.ufes.br/handle/10/1509
 
+https://americanliterature.com/
+
+https://standardebooks.org/
+
+
