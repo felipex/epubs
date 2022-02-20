@@ -12,4 +12,5 @@ https://americanliterature.com/
 
 https://standardebooks.org/
 
+https://www.dicas-l.com.br/arquivo/representacao_de_simbolos_especiais_em_html.php
 
